@@ -1,4 +1,7 @@
 # you died lmao
+
+(Writing this on 2/4/2026, this mod is NOT good, DO NOT play it if you value quality)
+
 Pico's "Game Over" track, but it's playable.
 
 I was goofing around with the chart editor and this is the result, I hope you like it! It's a very simple and short mod with one song, and yet it took me about three days to make.
