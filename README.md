@@ -1,6 +1,6 @@
 # you died lmao
 
-# (Writing this on 2/4/2026, this mod is NOT good, DO NOT play it if you value quality)
+# (Writing this on 2/25/2026, this mod is NOT good, DO NOT play it if you value quality)
 
 Pico's "Game Over" track, but it's playable.
 
